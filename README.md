@@ -1,6 +1,6 @@
 # Battle Night: Cyberpunk-Idle Hack
 
-<img src="https://ezgame21.com/wp-content/uploads/2021/02/Capture-1.png" alt="" width="886" height="899" />
+<img src="https://ezgame21.com/wp-content/uploads/2021/02/Capture-2-1024x630.png" alt="" width="1024" height="630" />
 
 Battle Night: Cyberpunk-Idle Hack
 
@@ -12,4 +12,4 @@ This is actually the only online place to have work tricks for Battle Night and 
 
 Use the online Battle Night Hack cheat generator for players to have coins and diamonds. The Battle Night Hack tool available for browser, Android and IOS, will allow you to get unlimited coins and diamonds, easy to use and without download. This Battle Night Cheat Generator was created by the famous "UNV Cheat Games" team and will allow you to add as many coins and diamonds as you need without connecting directly and remotely directly to the internet, because our Generator sends processed data to get information from state game servers. So if you're still looking for coins and diamonds somewhere, or maybe for fun, or to get past a level where you're fighting or to become one of the greatest players, use our Generator and get what you ever want. Our generator encrypts data to ensure maximum protection and minimum risk.
 
-<center><a href="https://ezgame21.com/clipclaps-hack/"><img src="https://ezgame21.com/wp-content/uploads/2021/01/button-43-300x110.png" alt="" width="300" height="110" /></a></center>
+<center><a href="https://ezgame21.com/battle-night-hack/"><img src="https://ezgame21.com/wp-content/uploads/2021/01/button-43-300x110.png" alt="" width="300" height="110" /></a></center>
